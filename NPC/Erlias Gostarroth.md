@@ -1,0 +1,1 @@
+Elven man the contracted Thordan to do his dirty deeds.  Killed by [[Kane]] and trapped his soul into the longsword.
