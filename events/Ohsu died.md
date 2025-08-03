@@ -1,0 +1,1 @@
+Ohsu died fighting Balago, failed because of door curse. Kane and Yarost ran away leaving my body.
