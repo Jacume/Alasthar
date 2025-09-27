@@ -1,0 +1,1 @@
+Orc mago que [[Ohsu]] le pico el brazo cuando iba a cast fireball.

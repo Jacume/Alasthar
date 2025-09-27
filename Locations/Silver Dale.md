@@ -1,0 +1,2 @@
+- Donde conocimos a [[Baradin]]. 
+- 

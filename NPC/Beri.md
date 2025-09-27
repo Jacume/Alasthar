@@ -1,0 +1,1 @@
+Dueña del [[Beri's Bakery]] en [[Silver Dale]].  Nos ayudó cuando atacamos warehouse de mythril.
